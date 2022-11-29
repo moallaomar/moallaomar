@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on Interesting Projects
 
-📫 How to reach me omar.moalla@esprit.tn
+📫 How to reach me omar.moalla@esprit.tn or https://omarthedeveloper.com
 
 
